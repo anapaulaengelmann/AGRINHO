@@ -1,2 +1,0 @@
-# Sustentabilidade
-Projeto Agrinho
